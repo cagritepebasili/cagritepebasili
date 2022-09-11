@@ -1,3 +1,3 @@
 <!--
-- cagritepebasili@protonmail.com 👋
+cagritepebasili@protonmail.com 👋
 -->
